@@ -1,5 +1,5 @@
 👋🏼 Hi, I’m @jessicaashby <p>
-✉️ You can reach me at @jcssica__a <p>
+✉️ You can reach me on IG at @jcssica__a <p>
 👩🏼‍💻 CFGDegree Data Student
 
 <!---
